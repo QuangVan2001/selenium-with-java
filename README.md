@@ -5,4 +5,4 @@
 ## Đặng Minh Hoàng
 
 
-## [Video Thuyết trình ](https://drive.google.com/drive/u/1/my-drive)
+## [Video Thuyết trình ](https://drive.google.com/file/d/1DVk_ksQxL09c31jypyCMD1EJG0kt0M-E/view?fbclid=IwAR35Mg8E9Xw-1pXfMnAnqvCu-4ufcFQetIaIFngh-kaUkoLFfZMSqvZZyro)
